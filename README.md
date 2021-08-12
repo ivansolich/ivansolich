@@ -15,3 +15,7 @@
 
 :joystick: Si te gustan los videojuegos, podes agregarme en Steam:
 * [Steam - RedFallen](https://steamcommunity.com/id/TheRedFallen/)
+
+## :newspaper: Social Media
+* :label: Instagram: [www.instagram.com/ivansolich18/](https://www.instagram.com/ivansolich18/)
+
